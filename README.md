@@ -1,0 +1,2 @@
+# More-Than-Glass-Mirrors-
+More Than Glass uses a wide variety of mirrors. We have clear, bronze, grey, transparent and 9 choices of antique mirror. We have actually beveled or straight cut mirrors. We have the capability to drill holes in mirrors for light switches and also electrical outlets. We provide a variety of shapes in mirror. We have actually mounted mirrors readily available likewise https://morethanglass.com/ .
